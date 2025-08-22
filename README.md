@@ -11,7 +11,6 @@ Meu nome é Luan Gabriel de Oliveira
 
 00001098322848sp@al.educacao.sp.gov.br
 
-@Luan_Cifer
 
 ![](https://i.pinimg.com/originals/45/91/cb/4591cb6b3c55d6dc7e299112864e2b47.gif)
 
